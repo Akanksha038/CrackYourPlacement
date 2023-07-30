@@ -6,3 +6,5 @@ This sheet will be updated with resources from time to time for your better unde
 
 
 #CrackYourInternship #CrackYourPlacement Challenge - #ReviseWithArsh
+Sheet link:
+https://docs.google.com/spreadsheets/d/1r35qSXY6rSAonFbPEKB_KXUvpCIBbVGMp5001MaNb3c/edit#gid=0
